@@ -1,0 +1,1 @@
+▶️ [Смотреть лекцию](https://www.youtube.com/watch?app=desktop&v=VctYHtCap3o)
